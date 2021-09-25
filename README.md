@@ -1,1 +1,1 @@
-# MahaYog_Internship_Task_1-2.github.io
+# MahaYog_Internship_Task_1.github.io
